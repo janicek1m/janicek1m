@@ -8,5 +8,5 @@ In addition, I'm currently working as an Campus Facilitator for [Hack4Impact](ht
 
 When I'm not coding, I love exploring design, discovering new artists, and trying new recipes!
 
-Let's connect! Feel free to reach out at [janicekim60@gmail.com](mailto:janicekim60@gmail.com)!
+Let's connect! Feel free to reach out at [janicekim60@gmail.com](mailto:janicekim60@gmail.com) or check out [janicekim.codes](https://janicekim.codes/)!
 
